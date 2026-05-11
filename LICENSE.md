@@ -1,4 +1,4 @@
-#  
+#  survive the apocalypse Scripts secret offers the most advanced survive the apocalypse Script, with auto-sell and one-hit kill. Perfect for dominating
 
 
 
